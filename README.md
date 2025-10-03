@@ -1,1 +1,1 @@
-# https://raccon2538-lap.githup.io
+# github.com/raccon2538-lap.githup.io
